@@ -1,4 +1,5 @@
-<img width="568" height="566" alt="Screenshot_20260728-034520" src="https://github.com/user-attachments/assets/7b3e8ee4-3f3c-4628-8523-8c0f71c854d5" />
+<img width="498" height="280" alt="nogodplease-hajime" src="https://github.com/user-attachments/assets/0987e35b-a37c-4bbf-9781-82deaf138a30" />
+
 
 
 
