@@ -1,7 +1,9 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="71" height="20" alt="download" src="https://github.com/user-attachments/assets/b3abb349-0fe1-4fcc-ae43-5fa643e0a58e" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="98" height="20" alt="download (1)" src="https://github.com/user-attachments/assets/ac36c119-8631-4c5f-b52c-9af216dfd924" />
 
 
-<img width="498" height="280" alt="nogodplease-hajime" src="https://github.com/user-attachments/assets/0987e35b-a37c-4bbf-9781-82deaf138a30" />
+
+<img width="498" height="254" alt="danganronpa-junko-enoshima" src="https://github.com/user-attachments/assets/872e1709-fa8c-4248-883e-9c8f4bf94a81" />
+
 
 
 
