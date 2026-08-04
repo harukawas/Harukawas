@@ -20,6 +20,6 @@
 
 
 
-<img width="786" height="187" alt="psd-dude-scrolling-text" src="https://github.com/user-attachments/assets/d66ed34c-ad67-4ed7-917b-049d4d6dea36" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤbmf (⁠╥⁠﹏⁠╥⁠)
 
 
