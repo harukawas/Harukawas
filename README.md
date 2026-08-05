@@ -16,7 +16,7 @@
 
 
 
-ㅤㅤ[atabook](https://starwberrydoggies.atabook.org/) ㅤㅤㅤㅤ[straw](https://strqwberrypuppii.straw.page/)ㅤㅤㅤㅤ[prns.cc](https://pronouns.cc/@Distortedpaintings)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Pinterest](https://pin.it/5e8P4sN7R)
+ㅤㅤ[atabook](https://starwberrydoggies.atabook.org/) ㅤㅤㅤㅤ[straw](https://strqwberrypuppii.straw.page/)ㅤㅤㅤㅤ[prns.cc](https://pronouns.cc/@Distortedpaintings)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Pinterest](https://pin.it/19tIZu8Rw)
 
 
 
