@@ -2,7 +2,8 @@
 
 
 
-<img width="498" height="276" alt="junko-enoshima-dangan-ronpa (1)" src="https://github.com/user-attachments/assets/3aa1a8dd-7327-49da-92b6-27aa4a00f3b8" />
+<img width="498" height="283" alt="skellyskelly-drawing" src="https://github.com/user-attachments/assets/5b549988-4b37-46b9-b398-a593b8976dd8" />
+
 
 
 
