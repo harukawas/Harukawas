@@ -2,7 +2,8 @@
 
 
 
-<img width="498" height="283" alt="skellyskelly-drawing" src="https://github.com/user-attachments/assets/5b549988-4b37-46b9-b398-a593b8976dd8" />
+<img width="640" height="358" alt="danganronpa-execution" src="https://github.com/user-attachments/assets/f12bf3e6-a30e-4380-ba6c-bb5dbb2e373e" />
+
 
 
 
