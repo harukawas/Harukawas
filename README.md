@@ -17,7 +17,8 @@
 
 
 
-<img width="480" height="64" alt="cat-divider" src="https://github.com/user-attachments/assets/1bdad669-411d-4c0c-a654-e9c2f6db4640" />
+<img width="498" height="40" alt="blue-divider" src="https://github.com/user-attachments/assets/c5538bbb-35c1-498d-8ffd-2a6b9f2acc62" />
+
 
 
 
