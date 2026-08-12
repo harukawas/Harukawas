@@ -1,9 +1,12 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="105" height="20" alt="download (2)" src="https://github.com/user-attachments/assets/28609927-d5f3-451b-a508-da731619465c" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="122" height="20" alt="download (3)" src="https://github.com/user-attachments/assets/2103f3b4-8689-4e07-8205-c0ddf80054da" />
 
 
 
 
-<img width="640" height="358" alt="danganronpa-execution" src="https://github.com/user-attachments/assets/f12bf3e6-a30e-4380-ba6c-bb5dbb2e373e" />
+
+<img width="640" height="348" alt="chocola-vanilla (1)" src="https://github.com/user-attachments/assets/6f5d8d5d-3882-45e0-a1bd-f6eb82de5b66" />
+
+
 
 
 
