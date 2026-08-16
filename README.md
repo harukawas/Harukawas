@@ -5,7 +5,8 @@
 
 
 
-<img width="640" height="360" alt="neko-para-vanilla" src="https://github.com/user-attachments/assets/4dbbca67-aca9-4122-bde0-d6f0b7573869" />
+<img width="480" height="270" alt="anime-nekopara (1)" src="https://github.com/user-attachments/assets/34734b33-44f0-4937-b111-b3c05ee88efd" />
+
 
 
 
