@@ -1,11 +1,4 @@
-ㅤㅤㅤㅤㅤ<img width="99" height="56" alt="djjvjcm-294ba3f1-fdc7-472c-8280-82fd521a929e" src="https://github.com/user-attachments/assets/f05c3dbb-e468-42ed-ba96-9cbc0ca58507" /> <img width="99" height="56" alt="d9t43tn-b1ce4b15-6435-4fac-9c51-15a977ebb60a" src="https://github.com/user-attachments/assets/8d51617d-1c4d-496b-9f46-5d26eda5331c" />
-
-
-
-
-
-
-<img width="480" height="270" alt="anime-nekopara (1)" src="https://github.com/user-attachments/assets/34734b33-44f0-4937-b111-b3c05ee88efd" />
+ㅤㅤㅤㅤㅤ<img width="99" height="56" alt="d6jcm67-a5b8800f-66b3-4599-ac87-b7cd7b8dbe4d" src="https://github.com/user-attachments/assets/c30444e3-e8aa-4467-bb6d-32413833d5a7" /> <img width="99" height="56" alt="d6jcldx-d8e5d1a5-5821-4ee7-b374-688938292ca7" src="https://github.com/user-attachments/assets/11af5883-d6a6-4928-ad4e-c518da4ba277" />
 
 
 
@@ -14,6 +7,7 @@
 
 
 
+<img width="736" height="736" alt="372a1ba9289198074345df70461e9f56" src="https://github.com/user-attachments/assets/049a827d-d713-4c85-a25b-fc0cf8369dd0" />
 
 
 
@@ -21,7 +15,16 @@
 
 
 
-<img width="498" height="40" alt="blue-divider" src="https://github.com/user-attachments/assets/c5538bbb-35c1-498d-8ffd-2a6b9f2acc62" />
+
+
+
+
+
+
+
+
+
+
 
 
 
