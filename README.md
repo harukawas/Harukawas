@@ -39,7 +39,7 @@
 
 
 
-ㅤㅤ[atabook](https://starwberrydoggies.atabook.org/) ㅤㅤㅤㅤ[straw](https://strqwberrypuppii.straw.page/)ㅤㅤㅤㅤ[prns.cc](https://pronouns.cc/@Distortedpaintings)
+ㅤㅤ[atabook](https://starwberrydoggies.atabook.org/) ㅤㅤㅤㅤ[straw](https://strqwberrypuppii.straw.page/)
 
 
 
