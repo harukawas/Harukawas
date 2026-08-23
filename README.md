@@ -39,7 +39,7 @@
 
 
 
-ㅤㅤ[atabook](https://starwberrydoggies.atabook.org/) ㅤㅤㅤㅤ[straw](https://strqwberrypuppii.straw.page/)
+ㅤㅤㅤㅤㅤ[atabook](https://starwberrydoggies.atabook.org/) ㅤㅤㅤㅤ[straw](https://strqwberrypuppii.straw.page/)
 
 
 
