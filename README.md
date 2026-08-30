@@ -1,14 +1,5 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="109" src="https://github.com/user-attachments/assets/b68f3a8b-525a-4dff-91b4-70751c6c2018" />
+<img width="1080" height="1050" alt="147" src="https://github.com/user-attachments/assets/fb244f7f-28be-414b-a579-2e8f2e2c6c7e" />
 
-
-
-
-
-
-
-
-
-<img width="720" height="720" alt="104" src="https://github.com/user-attachments/assets/22f0cbe8-740c-4ecf-89ce-3f145a9f7a35" />
 
 
 
@@ -45,6 +36,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤbmf (⁠╥⁠﹏⁠╥⁠)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbmf 
 
 
