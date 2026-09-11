@@ -12,7 +12,7 @@
 
 
 
-I hate when my mom talks about my chest it makes me so uncomfortable im genuinely gonna kill my self 
+
 
 
 
