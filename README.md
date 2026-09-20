@@ -16,7 +16,7 @@ hvy nagito and chiaki fictkin -
 
 hajime and maki yumeshipper, im hypersharing -
 
-gay, transmasc and demisexual -
+omnisexual, transmasc and demisexual -
 
 
 
