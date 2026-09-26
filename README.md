@@ -8,13 +8,36 @@
 
 
 
+<details>
+  <summary> kinsㅤ<img width="20" height="20" alt="474" src="https://github.com/user-attachments/assets/cddacd1e-46ff-4644-9288-758a8f277805" />
+ </summary>
+  
+  chiaki nanami 
+
+  nagito komaeda   
+
+  kaede akamatsu
+
+  kotoko utsugi
+</details>
 
 
 
 
-hvy nagito and chiaki fictkin -
 
-hajime and maki yumeshipper, im hypersharing -
+
+<details>
+  <summary> yumes ㅤ<img width="20" height="20" alt="474" src="https://github.com/user-attachments/assets/d32e07d6-7ba5-4a61-b801-981c371c2729" />
+</summary>
+  
+  hajime hinata (hypersharing)
+
+  maki harukawa (hypersharing)
+
+  tsumugi shirogane (nonsharing)
+
+  shuichi saihara (softsharing)
+</details>
 
 omnisexual, transmasc and demisexual -
 
@@ -32,7 +55,7 @@ omnisexual, transmasc and demisexual -
 
 
 
-WIP!!
+still a wip
 
 
 
