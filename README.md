@@ -35,11 +35,14 @@
   hajime hinata (hypersharing) <img width="20" height="20" alt="529" src="https://github.com/user-attachments/assets/88808466-a065-4db6-8e15-965dbc9c0323" />
 
 
-  maki harukawa (hypersharing)
+  maki harukawa (hypersharing) <img width="20" height="20" alt="529" src="https://github.com/user-attachments/assets/77a42651-212d-489e-8405-e8631b3ad4fd" />
 
-  tsumugi shirogane (nonsharing)
 
-  shuichi saihara (softsharing)
+  tsumugi shirogane (nonsharing) <img width="20" height="20" alt="529" src="https://github.com/user-attachments/assets/700db469-46f9-4fa1-a18a-a465eab4e746" />
+
+
+  shuichi saihara (softsharing) <img width="20" height="20" alt="529" src="https://github.com/user-attachments/assets/b662f401-52a2-4f9e-928a-d24947e174b0" />
+
 </details>
 
 omnisexual, transmasc and demisexual -
