@@ -1,7 +1,12 @@
-<img width="498" height="79" alt="530" src="https://github.com/user-attachments/assets/20e2caec-b1b6-46d8-9baa-4e083eb64bfa" />
+<img width="416" height="18" alt="564" src="https://github.com/user-attachments/assets/e3434545-59d1-4fad-9cf7-5c12234d8c16" />
 
 
-<img width="498" height="281" alt="526" src="https://github.com/user-attachments/assets/a0ec98e1-3f47-475b-88a0-faceaec161d6" />
+
+<img width="480" height="264" alt="560" src="https://github.com/user-attachments/assets/11359e24-7d4c-40a2-ba2e-a8dab429fccc" />
+
+<img width="498" height="88" alt="563" src="https://github.com/user-attachments/assets/3ef7c5c7-a95b-4a4f-b7e1-e7d97cef7c77" />
+
+
 
 
 
@@ -45,7 +50,6 @@
 
 </details>
 
-omnisexual, transmasc and demisexual -
 
 
 
@@ -61,7 +65,8 @@ omnisexual, transmasc and demisexual -
 
 
 
-still a wip
+
+wip
 
 
 
