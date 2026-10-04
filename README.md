@@ -1,10 +1,4 @@
-<img width="416" height="18" alt="564" src="https://github.com/user-attachments/assets/e3434545-59d1-4fad-9cf7-5c12234d8c16" />
-
-
-
-<img width="480" height="264" alt="560" src="https://github.com/user-attachments/assets/11359e24-7d4c-40a2-ba2e-a8dab429fccc" />
-
-<img width="498" height="88" alt="563" src="https://github.com/user-attachments/assets/3ef7c5c7-a95b-4a4f-b7e1-e7d97cef7c77" />
+<img width="480" height="270" alt="559" src="https://github.com/user-attachments/assets/0a21fae1-db14-4828-9747-57255b461172" />
 
 
 
@@ -15,8 +9,7 @@
 
 
 
-<details>
-  <summary> kinsㅤ<img width="20" height="20" alt="474" src="https://github.com/user-attachments/assets/cddacd1e-46ff-4644-9288-758a8f277805" />
+<details> <summary> kinsㅤ<img width="20" height="20" alt="474" src="https://github.com/user-attachments/assets/cddacd1e-46ff-4644-9288-758a8f277805" />
  </summary>
   
   chiaki nanami 
